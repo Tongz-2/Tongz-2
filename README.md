@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-
+ur mom
 - 🔭 I’m currently working on web development
 - 🌱 I’m currently learning IT programming
 - 👯 I’m looking to collaborate on idk...
